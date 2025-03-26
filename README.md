@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YeArsema2025
+- 👋 Hi, I’m Akberet Lemlem Atsbeha
 - 👀 I’m interested in Data Managment/Analysis
 - 🌱 I’m currently learning Postgraduate Diploma In Global Health Research
 - 💞️ I’m looking to collaborate on Public Health/Epidemiology/Genetic Research Projects
